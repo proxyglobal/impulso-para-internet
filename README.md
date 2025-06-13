@@ -1,6 +1,6 @@
 # ¿Internet lento? Aquí te digo cómo solucionarlo
 
-![Mejora la velocidad de tu internet](https://www.cheggindia.com/wp-content/uploads/2021/11/Online-Surveys-to-Earn-Money-Make-Money-Online.png)
+[![684a9c5aae420919539ff376-scaled-cover.jpg](https://i.postimg.cc/fbKfS1N9/684a9c5aae420919539ff376-scaled-cover.jpg)](https://postimg.cc/KK1Mdq4G)
 
 El internet lento puede ser un dolor de cabeza, especialmente cuando estás viendo una película o jugando en línea. ¿Alguna vez te has encontrado viendo ese círculo de carga eterno? Yo también pasé por eso, hasta que descubrí algunas soluciones que realmente marcaron la diferencia. Aquí te comparto lo que a mí me funcionó:
 
